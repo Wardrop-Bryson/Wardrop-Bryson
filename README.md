@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Wardrop-Bryson
-- 👀 I’m interested in SNOW
-- 🌱 I’m currently learning JAPANESE AND COMPUTER SCHIENCE
-- 💞️ I’m looking to collaborate on COURSES, SNOW...
+- 👀 I’m interested in gaming, crypto, and tech.
+- 🌱 I’m currently learning Computer Engineering.
+- 💞️ I’m looking to collaborate on Language Learning and high use cases.
 - 📫 How to reach me b.m.wardrop@gmail.com, (435) 654-8392
 
 <!---
